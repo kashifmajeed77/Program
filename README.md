@@ -1,1 +1,1 @@
-# Program
+# Work hard
